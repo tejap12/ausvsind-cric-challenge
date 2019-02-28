@@ -33,5 +33,4 @@ Shaun Marsh will be the highest Run Scorer of the series.
 Highest number of sixes:
 ========================
 Based on the high batting strike rate, Highest number of sixes will be delivered by Glenn Maxwell
-                                                                                    -------------
                                                                                     
